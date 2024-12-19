@@ -1,1 +1,1 @@
-# Semaphore 🅿🆁🅾
+# Semaphore Pro
